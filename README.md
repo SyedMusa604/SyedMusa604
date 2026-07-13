@@ -22,7 +22,7 @@
 - Growing my personal cybersecurity brand on LinkedIn & GitHub
 
 📬 Reach me at:
-- [LinkedIn](www.linkedin.com/in/musa-farrukh-604cs)
+- [LinkedIn](www.linkedin.com/in/musafarrukh)
 - Email: syedmusa566@gmail.com
 
 <!---
